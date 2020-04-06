@@ -1,1 +1,1 @@
-# drei-puntk
+# drei-punkt
